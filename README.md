@@ -27,3 +27,9 @@ All footage is AI-generated video (three generated clips), edited and titled wit
 ---
 
 *By Abdul99090*
+
+## Contact
+
+For collaborations, commissions and creator programmes, the creator can be reached at:
+
+- **Telegram:** @ETHtestnet
